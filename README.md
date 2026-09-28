@@ -1,0 +1,2 @@
+# premium-hive-split-001-hive-splitting-nuc-build-cra
+Tired of losing splits or ending up with weak nucs that never make it to winter? This workshop-style Notion template turns hive splitting from guesswork into a repeatable craft, so you build strong, thriving colonies every time.  This is not just a checklist—it’s a complete workshop in a template. It guides you through every phase of hive splitting
